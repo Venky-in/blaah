@@ -1,1 +1,1 @@
-# juz intro
+# juzt intro
